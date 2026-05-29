@@ -1,8 +1,6 @@
 # Baekho
 
- ╭───────────╮
- ﾟ･｡☼ 𝐈𝐍𝐓𝐑𝐎 ☽｡･ﾟ
- ╰───────────╯
+ABOUT ME!!
 
 Names ↠ 백호 [Baekho] + 쿄 [Kyo] + Subspace + Hyperlaser + Scythe + Mango + Peach + Strawberry + Literally any Fruit + Any Nicknames that I approve of
 
