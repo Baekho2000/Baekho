@@ -10,16 +10,17 @@ NOT a system but I like to portray myself as certain characters. Rn mainly Subsp
 
 ↳ | Ethnicity ─·» South Korean + North American |
 
-↳ |  Fandoms ─·»  Phighting (main one rn), Demon Slayer, Rain World, Cookie Run Kingdom (only for Candy Apple Cookie), Apothecaries Diary, InuYasha, Transformers, Pokémon, Starters, Call of Duty, Ultrakill, Alien Stage, etc! |
+↳ |  Fandoms ─·»  Phighting (main one rn), Demon Slayer, Rain World, Cookie Run Kingdom (only for Candy Apple Cookie), Apothecaries Diary, Just Shapes And Beats, InuYasha, Transformers, Pokémon, Starters, Call of Duty, Ultrakill, Alien Stage, etc! |
 
 ↳ | Pronouns ─·» Any [Genderfluid] Adores masculine terms! |
 
 ↳ | Sexuality ─·» Pansexual/romantic, Demisexual/romantic, Questioning Polyamorous |
 
 ↳ | Relationship ─·» Single Pringle!! Not actively looking so please don't talk to me if that's your only interest.. |
+
 ↳ | Time Zone ─·» Central Standard Time [CST]   |
 
-↳ | Talking ─·» YESSS, I mainly respond to whispers but I love conversations!! |
+↳ | Talking ─·» YESSS. I mainly respond to whispers (in pony town) but I love conversations!! |
 
 ↳ | C+H ─·» HIGHLY ENCOURAGED |
 
@@ -47,9 +48,9 @@ NOT a system but I like to portray myself as certain characters. Rn mainly Subsp
 
 ↳ | Fav Phighting Characters ─·» Subspace, Hyperlaser, Scythe, Broker, Slingshot |
 
-↳ | Fav Phighting Ship ─·» Subkit [Subspace x Medkit], Hypertana [Hyperlaser x Katana], Sublaser [Subspace x Hyperlaser], Skateshot [Skateboard x Slingshot], Coilshot [Coil x Slingshot] |
+↳ | Fav Phighting Ship ─·» Subkit [Subspace x Medkit], Hypertana [Hyperlaser x Katana], Sublaser [Subspace x Hyperlaser], Skateshot [Skateboard x Slingshot], Coilshot [Coil x Slingshot] I ship others as well cause multishipper, hehe! |
+
 If you dont like a ship just don't interact!!
-I love writing fanfics about them...
 
 ↳ | Mains ─·» Subspace and Banhammer |
 
