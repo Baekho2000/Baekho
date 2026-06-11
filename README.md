@@ -30,7 +30,7 @@ NOT a system but I like to portray myself as certain characters. Rn mainly Subsp
 
 ↳ | Fav Music Band / Animal ─·» Glass Animals / Tigers |
 
-↳ | Age ─·» 6teen [Don't be sus!!] |
+↳ | Age ─·» 7teen [Don't be sus!!] |
 
 ↳ | Preferred Age Group ─·» 15-24 [Makes exceptions if you're chill] |
 
@@ -48,7 +48,8 @@ NOT a system but I like to portray myself as certain characters. Rn mainly Subsp
 
 ↳ | Fav Phighting Characters ─·» Subspace, Hyperlaser, Scythe, Broker, Slingshot |
 
-↳ | Fav Phighting Ship ─·» Subkit [Subspace x Medkit], Hypertana [Hyperlaser x Katana], Sublaser [Subspace x Hyperlaser], Skateshot [Skateboard x Slingshot], Coilshot [Coil x Slingshot] I ship others as well cause multishipper, hehe! |
+↳ | Fav Phighting Ship ─·» Subkit [Subspace x Medkit], Hypertana [Hyperlaser x Katana], Sublaser [Subspace x Hyperlaser], Skateshot [Skateboard x Slingshot], Coilshot [Coil x Slingshot] I ship others as well cause multishipper, hehe!
+ |
 
 If you dont like a ship just don't interact!!
 
