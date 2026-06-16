@@ -10,7 +10,7 @@ NOT a system but I like to portray myself as certain characters. Rn mainly Subsp
 
 ↳ | Ethnicity ─·» South Korean + North American |
 
-↳ |  Fandoms ─·»  Phighting (main one rn), Demon Slayer, Rain World, Cookie Run Kingdom (only for Candy Apple Cookie), Apothecaries Diary, Just Shapes And Beats, InuYasha, Transformers, Pokémon, Starters, Call of Duty, Ultrakill, Alien Stage, etc! |
+↳ |  Fandoms ─·»  Phighting (main one rn), Demon Slayer, Rain World, Bee and Puppycat, Cookie Run Kingdom (only for Candy Apple Cookie), Apothecaries Diary, Just Shapes And Beats, InuYasha, Transformers, Pokémon, Starters, Call of Duty, Ultrakill, Alien Stage, etc! |
 
 ↳ | Pronouns ─·» Any [Genderfluid] Adores masculine terms! |
 
