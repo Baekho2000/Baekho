@@ -26,7 +26,7 @@ NOT a system but I like to portray myself as certain characters. Rn mainly Subsp
 
 ↳ | DNC ─·» DO NOT TAKE INSPO OR COPY MY COSPLAYS!! |
 
-↳ | Life Style ─·» Buddhist + Atheist [Science] |
+↳ | Life Style ─·» Atheist [Science] |
 
 ↳ | Fav Music Band / Animal ─·» Glass Animals / Tigers |
 
@@ -60,7 +60,7 @@ I love talking about my OCs! Please let me yap to you about them!!!
 
 ──·»✦«·-·»✦«·──
 
-"Holding onto anger is like drinking poison and expecting the other person to die.” -Buddha
+"It's filthy, digesting, so ugly, I'm sure. I'm ugly, disgusting, and filthy for sure.”
 
 +
 
